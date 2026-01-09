@@ -1,2 +1,2 @@
 # Ugly-Flies
-Custom ugly flies and lures made from premium natural materials
+Flies made without any specific pattern in mind, just doing what I feel like and making Ugly Flies and Lures. Stock is always changing. 
